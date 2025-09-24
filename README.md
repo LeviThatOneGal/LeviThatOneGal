@@ -1,2 +1,2 @@
-- Im Levi (that one guy)
+- Im Levi
 - I love customization
